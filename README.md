@@ -1,5 +1,5 @@
 📞🤖Our OTP Bot is Online 📞🤖
-
+Video Link : https://t.me/mrxotpservices/298
 Calls to USA/Canada/France/Germany/Spain/Australia/Singapore/Israel 
 
 -Custom script with all languages ✅
