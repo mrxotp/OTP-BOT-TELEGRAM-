@@ -23,9 +23,9 @@ Calls to USA/Canada/France/Germany/Spain/Australia/Singapore/Israel
 
 Payment Methods : Cryptocurrency 
 
-You can buy through our bot : @MRXOTP1Bot
+You can buy through our bot : https://t.me/MRXOTP1Bot
 
-📥 Contact Us at @mrx13121312 🧡if you have any enquiry
+📥 Contact Us at https://t.me/mrx13121312 🧡if you have any enquiry
 
 CHANNEL : https://t.me/mrxotpservices
 
